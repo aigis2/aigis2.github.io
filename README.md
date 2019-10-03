@@ -1,1 +1,0 @@
-# aigis2.github.io
